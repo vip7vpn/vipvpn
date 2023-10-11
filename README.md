@@ -1,1 +1,2 @@
-[# vipvpn](https://vip65.site/)https://vip65.site/
+آدرس جدید سایت، برای خرید و ورود به سایت روی لینک زیر کلیک کنید:
+https://vip65.site/
