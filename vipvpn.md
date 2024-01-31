@@ -1,6 +1,6 @@
 <div id="vip" dir="rtl"> <center> <h3 > <b>   <br>  
 
-<a  target="_blank" href="https://vipvpn-bd.site/"> 🔗 برای خرید فیلترشکن از سایت ما اینجا کلیک کنید 🚀
+<a  target="_blank" href="https://vipvpn-ty.site/"> 🔗 برای خرید فیلترشکن از سایت ما اینجا کلیک کنید 🚀
  </a>
  
   <br>  
