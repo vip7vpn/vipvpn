@@ -7,10 +7,8 @@
 
 <a  target="_blank" href="https://vip-ii.site/"> 🔗 برای خرید فیلترشکن از سایت ما اینجا کلیک کنید 🚀
  </a>
-<br>  
-  🔵  یا برای خرید فیلترشکن به آی دی تلگرام زیر پیام دهید:   
-
-  <br> <br>
+ <br><br> 🔵  یا برای خرید فیلترشکن به آی دی تلگرام زیر پیام دهید:   
+  <br>
 <a href="https://t.me/vipvpn_sale2"  target="_blank">https://t.me/vipvpn_sale2</a>
 
  <br>  
