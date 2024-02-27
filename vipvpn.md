@@ -7,14 +7,12 @@
 
 <a  target="_blank" href="https://vip-yy.site/"> 🔗 برای خرید فیلترشکن از سایت ما اینجا کلیک کنید 🚀
  </a>
- <br><br> 🔵  یا برای خرید فیلترشکن به آی دی تلگرام زیر پیام دهید:   
-  <br>
-<a href="https://t.me/vipvpn_sale2"  target="_blank">https://t.me/vipvpn_sale2</a>
 <br><br> 🔵  یا برای خرید فیلترشکن با سیستم چت آنلاین روی لینک زیر کلیک کنید:   
   <br>
 <a href="https://board-support.live/supportboard/direct_live_chat.php"  target="_blank"> ورود به سیستم چت آنلاین </a>
-
- <br>  
+ <br><br> 🔵  یا برای خرید فیلترشکن به آی دی تلگرام زیر پیام دهید:   
+  <br>
+<a href="https://t.me/vipvpn_sale2"  target="_blank">https://t.me/vipvpn_sale2</a>
 
    
   🔵 و یا برای خرید فیلترشکن به ایمیل زیر پیام دهید:
