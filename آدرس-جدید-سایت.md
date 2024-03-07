@@ -9,7 +9,7 @@
  </a>
 <br><br> 🔵  یا برای خرید فیلترشکن با سیستم چت آنلاین روی لینک زیر کلیک کنید:   
   <br>
-<a href="https://vip-95.site/chat.php"  target="_blank"> ورود به سیستم چت آنلاین </a>
+<a href="https://vip-95.site/index.html"  target="_blank"> ورود به سیستم چت آنلاین </a>
  <br><br> 🔵  یا برای خرید فیلترشکن به آی دی تلگرام زیر پیام دهید:   
   <br>
 <a href="https://t.me/vipvpn_sale2"  target="_blank">https://t.me/vipvpn_sale2</a>
