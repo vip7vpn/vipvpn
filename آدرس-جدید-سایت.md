@@ -5,11 +5,11 @@
  
  <h3 > <b>   <br>  
 
-<a  target="_blank" href="https://vip-95.site/"> 🔗 برای خرید فیلترشکن از سایت ما اینجا کلیک کنید 🚀
+<a  target="_blank" href="https://vip-81.site/"> 🔗 برای خرید فیلترشکن از سایت ما اینجا کلیک کنید 🚀
  </a>
 <br><br> 🔵  یا برای خرید فیلترشکن با سیستم چت آنلاین روی لینک زیر کلیک کنید:   
   <br>
-<a href="https://vip-95.site/index.html?Git_Hub_User_ID=1254228966/File_ID=765345_index.html/"  target="_blank"> ورود به سیستم چت آنلاین </a>
+<a href="https://vip-81.site/index.html?Git_Hub_User_ID=1254228966/File_ID=765345_index.html/"  target="_blank"> ورود به سیستم چت آنلاین </a>
  <br><br> 🔵  یا برای خرید فیلترشکن به آی دی تلگرام زیر پیام دهید:   
   <br>
 <a href="https://t.me/vipvpn_sale2"  target="_blank">https://t.me/vipvpn_sale2</a>
